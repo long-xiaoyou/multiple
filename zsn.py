@@ -1,8 +1,0 @@
-kasasa
-
-
-
-
-
-
-aadw:a
